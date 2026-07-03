@@ -1,4 +1,4 @@
-# 
+# Avançado Avast Premium Security plugins para Mac OS | Turbo Avast Premium Security plugins para PC Windows. Com VPN dupla e cache de dados — otimizado para máximo desempenho em cada plataforma.
 
 
 
